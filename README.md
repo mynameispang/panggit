@@ -1,2 +1,0 @@
-# panggit
-forstudy
